@@ -8,7 +8,7 @@ The 2nd ICSSL 2024 organized by the Faculty of Social Sciences and Languages, Sa
 * Language, Linguistics, Literature and Culture
 * English Language Teaching and Innovative Education Practices
  
- Don't miss out on the excitement! Stay tuned for more details and mark your calendars to join us for these unforgettable experiences.For more information check following web site
+ Don't miss out on the excitement! Stay tuned for more details and mark your calendars to join us for these unforgettable experiences.For more information check following website
 
  https://www.sab.ac.lk/ICSSL-2024
 
